@@ -1,4 +1,5 @@
 # DeVops-aula2
 # Jinx Maze
-# Ashlyn Broke
+#  Mia Khalifa
 # Alexis Texas
+# Julia Paes
